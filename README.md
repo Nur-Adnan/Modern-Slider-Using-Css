@@ -1,1 +1,1 @@
-![nur_adnan](https://github.com/Nur-Adnan/Modern-Slider-Using-Css/assets/56475820/62c1da47-8662-4239-9cc1-e0c0841f758c)
+![image](https://github.com/Nur-Adnan/Modern-Slider-Using-Css/assets/56475820/3f0d58da-504b-4369-bbcb-74ad9336fa18)
